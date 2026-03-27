@@ -1,2 +1,2 @@
 # Seth-
-Creating awareness on cyber Security, x
+Creating awareness on cyber Security
